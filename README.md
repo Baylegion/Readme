@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mr. War
 - 👀 I’m interested in Star Wars, History, and BJJ
 - 🌱 I’m currently learning Python
-- 💞️ I’m looking to collaborate on learning new skills
+- 💞️ I’m looking to learn skills
 - 📫 How to reach me Help@triplelineagency 
